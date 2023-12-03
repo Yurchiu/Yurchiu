@@ -12,6 +12,6 @@ I'm a high school student in China, which is ✨vegetable-like✨(means weak in 
 - 🔭 I’m currently working on my blog theme.
 - 🌱 I’m currently learning how not to be ✨vegetable-like✨.
 - 👯 I’m looking to collaborate on ✨dalao✨(means persons who are strong in ability).
-- 🎨 I want to be a cute girl. As you can see in the avatar.
+- 🍥 I want to be a cute girl. HRTing.
 - 💬 Feel free to ask me about something.
 - 📫 How to reach me: 2378975755@qq.com, or my blog https://yz-hs.github.io.
