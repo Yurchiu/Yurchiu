@@ -5,7 +5,7 @@
 
 I feel honored that you come here to look my ✨terrible✨ homepage and me.
 
-This account is my main account. <https://github.com/yz-hs> is used as blog.
+This account is my main account. <https://github.com/yz-hs> is used as my old blog.
 
 I'm a university student in China, who is ✨vegetable-like✨(means weak in ability).
 
