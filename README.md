@@ -11,6 +11,6 @@ I'm a university student in China, who is ✨vegetable-like✨(means weak in abi
 
 - 🌱 I’m currently learning how not to be ✨vegetable-like✨.
 - 👯 I’m looking to collaborate on ✨dalao✨(means persons who are strong in ability).
-- 🍥 I'm a transgirl. I want to be a cute girl. HRT(GAHT)ing, and working on getting the certificate.
 - 💬 Feel free to ask me about something.
 - 📫 How to reach me: 2378975755@qq.com, informally, or Yurchiu@outlook.com, formally. My blog https://Yurchiu.github.io.
+- 🏳️‍⚧️
