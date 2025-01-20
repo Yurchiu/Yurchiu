@@ -8,7 +8,7 @@ I feel honored that you come here to look my ✨terrible✨ homepage and me.
 
 This account is my main account. <https://github.com/yz-hs> is used as my old blog.
 
-I'm a university student in China, who is ✨vegetable-like✨(means weak in ability).
+I'm a university student in China, who is ✨vegetable-like✨(means 菜).
 
 - 🌱 I’m currently learning how not to be ✨vegetable-like✨.
 - 👯 I’m looking to collaborate on ✨dalao✨(means persons who are strong in ability).
